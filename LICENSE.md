@@ -1,4 +1,4 @@
-# 
+# Best DaVinci Resolve for PC plugins is the best DaVinci Resolve for PC plugins with piano-roll and noise-reduction. Safe, reliable, and optimized for maximum performance.
 
 
 
